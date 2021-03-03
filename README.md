@@ -1,6 +1,4 @@
-You can find it here👇🏼
 
-🔗https://powsikan.github.io/ImageFinder
 
 
 
